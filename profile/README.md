@@ -1,5 +1,3 @@
-# Frank Key Group
-
 Welcome to Frank Key Builders Merchants. We are an independent supplier of building & timber materials, including landscaping, plant & tool hire and even kitchens & bathrooms. The Frank Key builders merchants Nottingham is our flagship branch with all our services on one site. Our new builder's merchants Sheffield branch has been upgraded offering Building Supplies, Plant & Tool Hire and more.
 
 
