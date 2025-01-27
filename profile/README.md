@@ -50,7 +50,7 @@ We are a large, privately owned, independent, builders’ merchant with branches
 
 
 ### Halifax
-  - [Plant & Tool Hire](https://www.frank-key.co.uk/frank-key-bradford)
+  - [Plant & Tool Hire](https://www.frank-key.co.uk/frank-key-halifax)
   - 📬 125 Pellon Lane, Halifax, HX1 5QN
   - ☎ <a href="tel:+4401422254789">01422 254789</a>
 <details>
